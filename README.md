@@ -1,6 +1,6 @@
 ![](少司缘_聆愿之祝_动态海报.gif)
 
-[Rentry](https://fluffle.cc/dolia)
+[Rentry](https://fluffle.cc/dolia)  ILY SHUBA ♡♡♡
 
 I FIGURED IT OUT BUT ALL YOU'RE GETTING FROM ME IS A DYADIA LIVE2D
 
