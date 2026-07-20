@@ -1,4 +1,4 @@
-<img width="500" height="300" alt="getsitecontrol__compress-gif__free" src="https://github.com/user-attachments/assets/68da3992-b92c-434e-839a-4f3251acf6c7" />
+<img width="550" height="300" alt="getsitecontrol__compress-gif__free" src="https://github.com/user-attachments/assets/68da3992-b92c-434e-839a-4f3251acf6c7" />
 
 [Rentry](https://fluffle.cc/dolia)  ILY SHUBA ♡♡♡ (follow my goat [Shuba](https://github.com/adorelace))
 
